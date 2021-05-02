@@ -1,1 +1,1 @@
-# startup.github.io
+https://minwoojj.github.io/startup.github.io/
